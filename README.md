@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @blur1337
-- 👀 I’m interested in codeing and hosting servers
+- 👀 I’m interested in coding and hosting servers
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on idk no one 
 
